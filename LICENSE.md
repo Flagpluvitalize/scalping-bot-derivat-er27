@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with quantitative scalping bot for derivatives Strategy | leverage-management + perpetual-trading. Featuring leverage-management and
 
 
 
